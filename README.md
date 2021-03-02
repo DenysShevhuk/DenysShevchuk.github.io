@@ -1,1 +1,1 @@
-# DenysShevchuk.github.io/sp1
+# DenysShevchuk.github.io
